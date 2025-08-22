@@ -28,8 +28,8 @@ _____________________________
 ______________________________
 
 저에대해 더 알고싶으신가요?
--> [[노션 링크]](https://silent-lint-b8f.notion.site/20236e84a97180abbc8bdfc489e4d533)
-    
+-> [[노션 링크]](https://silent-lint-b8f.notion.site/22936e84a971806a9ec2e30145837afe)
+    2025/08/22 Updated
 
 연락
 email:     osch7497@gmail.com
